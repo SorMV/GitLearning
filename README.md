@@ -1,7 +1,1 @@
 # GitLearning
-
-
-ерпгшекрп
-readme
-
-dfgfdgefg
